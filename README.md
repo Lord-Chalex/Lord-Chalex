@@ -8,7 +8,8 @@
 ![image](https://github.com/Lord-Chalex/Lord-Chalex/assets/146172598/91956fd8-125a-4588-b95e-e0e2ecf1a938)
 ![image](https://github.com/Lord-Chalex/Lord-Chalex/assets/146172598/6dd97fac-4112-4d20-bbdd-51e9e8c666a2)
 ![image](https://github.com/Lord-Chalex/Lord-Chalex/assets/146172598/9689e083-efd8-4857-94f5-39fe257a927a)
-![image](https://github.com/Lord-Chalex/Lord-Chalex/assets/146172598/0b8c4f9e-56a6-4442-ac30-ec1d8df353a1)
+![image](https://github.com/Lord-Chalex/Lord-Chalex/assets/146172598/36272db8-09c1-4568-bce4-83c929768d99)
+
 
 
 <!---
